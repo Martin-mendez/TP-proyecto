@@ -1,1 +1,1 @@
-# Integrantes: china, pibe K, mate, tincho.
+VICTORIA BURGOS, LUCA KESTEMBAUN, MATEO MAJLIN, MARTIN MENDEZ
